@@ -10,7 +10,7 @@
 
 ### 最新
 
-* [世界，你好！](https://www.jiangqiyuan.com/hello-solo)
+* [世界，你好！](https://www.anrs.net/hello-solo)
 
 
 
